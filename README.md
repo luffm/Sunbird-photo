@@ -28,7 +28,7 @@
 ## Ritsurin Park
 2021-09-17<br>
 ![Ritsurin Park](images/2021-09-17-Ritsurin_Park.jpg)
-<br>3000 pieces
+<br>1000 pieces
 
 ## Nagasaki Night View
 2021-08-10<br>
